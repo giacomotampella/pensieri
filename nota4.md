@@ -93,6 +93,13 @@ ahaha vabbè altra parentesi infinita.
 Ciao,
 Giacomo
 
+p.s. è il 7 marzo, mattina presto (8:19), sto aspettando l'inizio della lezione e nel mentre ho caricato la nota. Mi sono però dimenticato di un dettaglio importante: la foto e l'annessa descrizione. 
+
+Allora ho aperto la galleria e ho scelto questa. Beh, innanzitutto perché è comunque una foto recente (domenica scorsa, oggi è venerdì), secondo perché credo si sposi bene con la nota. 
+
+"Fiamme negli occhi", cantavano i Coma_Cose (non che io sia particolarmente fan eh). Parlo di occhi, parlo di mille altre cose. Ma gli occhi li voglio vedere come centro e fulcro della nota.
+Le fiamme si sposano bene. Tra l'altro aggiungo, stare lì davanti al fuoco era davvero difficile. Bellissimo, ma difficile. Perché scottava, bruciava la pelle, ti costringeva quasi a chiudere gli occhi a momenti. Un po' come guardare quegli occhi: si certo, li ammiri, ma dopo poco devi chiudere gli occhi, distogliere lo sguardo, o rischi di bruciarti. 
+
 ---
 
 6 marzo 2025 - 14:35 - Italia (bologna)
