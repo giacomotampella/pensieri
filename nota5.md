@@ -65,7 +65,7 @@ faccio tanta fatica, tanta. però è così.
 
 gt.
 
-ps. sull'immagine non posso dire tanto, è una panchina nostalgica. non posso dire tanto su questa panchina, se non che mi dice tanto, tantissimo, ogni volta che la vedo.
+#### ps. sull'immagine non posso dire tanto, è una panchina nostalgica. non posso dire tanto su questa panchina, se non che mi dice tanto, tantissimo, ogni volta che la vedo.
 ---
 
 4 giugno 2026 - 17:39 - Italia (lugo)
